@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @pjhlindamaravilhosa
 - **amo cogumelos**
 beba água
-<img src ="https://www.petz.com.br/blog/wp-content/uploads/2022/09/gatos-dominantes3.jpg">
+<img src ="https://img.odcdn.com.br/wp-content/uploads/2023/05/shutterstock_1771294973-1.jpg">
